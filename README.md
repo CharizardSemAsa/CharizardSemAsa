@@ -7,4 +7,5 @@ Sou guitarrista
 
  ⚡KATCHAU⚡
 
- ![](https://media1.tenor.com/m/pkUtuwKyGI0AAAAC/max-verstappen-anime.gif)
+ ![](https://media1.tenor.com/m/W1hjixmrkHgAAAAC/max-verstappen.gif
+ )
